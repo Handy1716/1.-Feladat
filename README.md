@@ -1,4 +1,4 @@
-# [Polgár Kristóf]
+# Polgár Kristóf
 
 
 ## Hogyan kezdj neki?
